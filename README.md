@@ -1,0 +1,1 @@
+# Spartaglobal_markdown_intro
